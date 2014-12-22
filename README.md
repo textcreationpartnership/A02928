@@ -36,372 +36,82 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The vvay of lyfe A Christian, and catholique institution comprehending principal poincts of Christia
+
+1. To the Right woorſhipful, Maiſter Henry Sadleyre Eſquyer, Sonne of the right Honorable, Sir Raphe Sadleyre Knight, (one of her Maieſties, moſt honorable priuie Counſayle, and Chauncellour of her Duchy of Lancaſtre:) And alſo to Miſtriſſe Dorothy, wife of the ſaid Henry: Nicolas Denham: wiſheth the fauour of God, with the increaſe of the knowledge of aſſured ſaluation, in IESV CHRIST.
+
+1. To the Chriſtian Reader.
+
+1. Faultes eſcaped in Hemmingius his Epiſtle.
+
+1. ¶To the magnificent, and worthy Gentleman, excellent in wisdome, vertue & godlineſſe, Biornone Kaaes, Lord of Starupgaarde, moſt prudent Senatour of the kingdome of Denmarke, preſident for the King in the Tower of Malinogien: And to his welbeloued wife, the noble, chaſte & godlie Lady Chriſtine Nicolai Fil. Nicolas Hemmingius wiſheth grace and peace from God the father, through our Lord IESVS CHRIST.
+
 #####Body#####
 
-1. The firſt Doctrine.
+1. A CHRISTIAN AND Catholike Inſtitution, comprehending, principall pointes of Chriſtian Religion, which are neceſſarie to be knowen of man, to the attayning of ſaluation.
 
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
+    _ The firſt Doctrine.
 
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
+    _ The ſeconde Doctrine.
 
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
+    _ ¶ Of the firſt.
 
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
+    _ Of the ſecond.
 
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
+    _ Of the thirde.
 
-    _ For the grace of God to lyue well, and dye well.
+    _ Of the Externall (or outward) vſe of the Lawe.
 
-1. The ſeconde Doctrine.
+    _ Of the Internall (or inwarde) vſe of the Lawe.
 
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
+    _ Of the ſpirituall vſe of the Lawe.
 
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
+    _ The thirde Doctrine.
 
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
+    _ ❧Of the firſte point or Chapter.
 
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
+    _ Of the ſecond Chapter.
 
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
+    _ Of the third point or Chapter.
 
-    _ For the grace of God to lyue well, and dye well.
+    _ Of the fourth point or Chapter.
 
-1. ¶ Of the firſt.
+    _ Of the fifte point or Chapter.
 
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
+    _ The firſte benefite.
 
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
+    _ The ſeconde benefite.
 
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
+    _ Of the ſinne Jrremiſsible, commonly called the ſinne againſt the holie Ghoſte.
 
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
+    _ The thirde benefite.
 
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
+    _ The fourth benefite of Chriſt.
 
-    _ For the grace of God to lyue well, and dye well.
+    _ The fifte benefite of Chriſte.
 
-1. Of the ſecond.
+    _ Of the ſixt point or Chapter.
 
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
+    _ Of the Sacrament of Baptiſme.
 
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
+    _ Of the ſupper of the Lord.
 
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
+    _ Of the worſhip (or ſeruice) of GOD.
 
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
+    _ Of Chriſtian Prayer.
 
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
+    _ A ſmall forme of Daily Prayer, to bee daily vſed.
 
-    _ For the grace of God to lyue well, and dye well.
+      * A Thankeſgeuing for all God his giftes, and Benefites in generall.
 
-1. Of the thirde.
+      * For the preſeruation of the Church, or Congregation of Chriſte.
 
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
+      * For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
 
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
+      * For the forgiueneſſe of ſinnes, and obteyninge of grace.
 
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
+      * For the ayde of God in the needefull buſineſſes of our vocation.
 
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
-
-1. Of the Externall (or outward) vſe of the Lawe.
-
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
-
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
-
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
-
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
-
-1. Of the Internall (or inwarde) vſe of the Lawe.
-
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
-
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
-
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
-
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
-
-1. Of the ſpirituall vſe of the Lawe.
-
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
-
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
-
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
-
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
-
-1. The thirde Doctrine.
-
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
-
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
-
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
-
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
-
-1. ❧Of the firſte point or Chapter.
-
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
-
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
-
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
-
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
-
-1. Of the ſecond Chapter.
-
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
-
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
-
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
-
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
-
-1. Of the third point or Chapter.
-
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
-
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
-
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
-
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
-
-1. Of the fourth point or Chapter.
-
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
-
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
-
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
-
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
-
-1. Of the fifte point or Chapter.
-
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
-
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
-
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
-
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
-
-1. The firſte benefite.
-
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
-
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
-
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
-
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
-
-1. The ſeconde benefite.
-
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
-
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
-
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
-
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
-
-1. Of the ſinne Jrremiſsible, commonly called the ſinne againſt the holie Ghoſte.
-
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
-
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
-
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
-
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
-
-1. The thirde benefite.
-
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
-
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
-
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
-
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
-
-1. The fourth benefite of Chriſt.
-
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
-
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
-
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
-
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
-
-1. The fifte benefite of Chriſte.
-
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
-
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
-
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
-
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
-
-1. Of the ſixt point or Chapter.
-
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
-
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
-
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
-
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
-
-1. Of the Sacrament of Baptiſme.
-
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
-
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
-
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
-
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
-
-1. Of the ſupper of the Lord.
-
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
-
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
-
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
-
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
-
-1. Of the worſhip (or ſeruice) of GOD.
-
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
-
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
-
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
-
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
-
-1. Of Chriſtian Prayer.
-
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
-
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
-
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
-
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
-
-1. A ſmall forme of Daily Prayer, to bee daily vſed.
-
-    _ A Thankeſgeuing for all God his giftes, and Benefites in generall.
-
-    _ For the preſeruation of the Church, or Congregation of Chriſte.
-
-    _ For the Realme, Prince, Counſayllours, and euery eſtate of lyfe.
-
-    _ For the forgiueneſſe of ſinnes, and obteyninge of grace.
-
-    _ For the ayde of God in the needefull buſineſſes of our vocation.
-
-    _ For the grace of God to lyue well, and dye well.
+      * For the grace of God to lyue well, and dye well.
 
 **Types of content**
 
